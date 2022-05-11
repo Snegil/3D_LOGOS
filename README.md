@@ -1,2 +1,2 @@
 # 3D_LOGOS
- Logos in 3D
+ I own none of these logos; I only made them 3D
